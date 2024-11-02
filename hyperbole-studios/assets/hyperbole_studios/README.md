@@ -1,1 +1,1 @@
-Vectors for Hyperbole Studios
+Branding vectors for Hyperbole Studios
